@@ -7,4 +7,4 @@
 - 💬 Ask me about my goals and what I want to achieve in my lifetime.
 - 📫 How to reach me: david@davidsha.me
 - 😄 Pronouns: he/him/sha
-- ⚡ Fun fact: I care about optimisations.
+- ⚡ Fun fact: I was born Australian.
