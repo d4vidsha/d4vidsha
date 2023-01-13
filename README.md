@@ -8,3 +8,5 @@
 - 📫 How to reach me: david@davidsha.me
 - 😄 Pronouns: he/him/sha
 - ⚡ Fun fact: I was born in Australia.
+
+Find everything else on my website [davidsha.me](https://davidsha.me).
